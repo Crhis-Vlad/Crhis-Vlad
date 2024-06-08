@@ -7,7 +7,7 @@ DESARROLLADOR WEB FULL STACK
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - REDES SOCIALES
-FACEBOOK
+- FACEBOOK
 
 WHASTAPP
 +51 900 66 43 81
