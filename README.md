@@ -3,8 +3,5 @@ DESARROLLADOR WEB FULL STACK
 
 
 REDES SOCIALES
-- FACEBOOK: CD
+- FACEBOOK: https://www.facebook.com/Crhis.vlad
 - WHASTAPP: +51 900 66 43 81
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
